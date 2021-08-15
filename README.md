@@ -1,3 +1,3 @@
 # lists
 
-- 📚 [read](read.md)
+- [📚 read](read.md)

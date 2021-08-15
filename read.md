@@ -24,12 +24,13 @@ Murakami, Haruki
 ## 2019
 
 ### Read 
+- The Gene: An Intimate History - Mukherjee, Siddhartha
 - The Last Samurai - 	
 DeWitt, Helen
-- The Gene: An Intimate History - Mukherjee, Siddhartha
 - A Shameful Life -
 Dazai, Osamu
 - Outline - Cusk, Rachel
+- The Penguin Book of Japanese Short Stories
 
 ### Attempted
 
@@ -37,6 +38,7 @@ Dazai, Osamu
 Wallace, David Foster
 - Anna Karenina - Tolstoy, Leo
 - The Bell Jar, Plath, Sylvia
+- My Struggle: Book 1 - Karl Ove Knausgård
 
 ## 2018
 

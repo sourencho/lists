@@ -44,6 +44,7 @@ Wallace, David Foster
 
 ### Read
 
+- Hopscotch - Julio Cortázar
 - Lolita - Nabokov, Vladimir
 - Satantango - Krasznahorkai, László
 - Stoner - Williams, John

@@ -1,8 +1,15 @@
 # read
 
+## 2022
+
+### Read
+- Disgrace - J.M. Coetzee
+
 ## 2021
 
 ### Read
+- My Struggle: Book 1 - Karl Ove Knausgård
+- On Earth We're Briefly Gorgeous - Vuong, Ocean
 - Perdido Street Station - Miéville, China 
 - Convenience Store Woman - Sayaka Murata
 - Exhalation - Ted Chiang

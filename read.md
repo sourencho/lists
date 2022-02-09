@@ -3,6 +3,7 @@
 ## 2022
 
 ### Read
+- Piranesi - Susanna Clarke
 - Disgrace - J.M. Coetzee
 
 ## 2021
